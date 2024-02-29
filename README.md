@@ -1,0 +1,1 @@
+# Capturesphere.mydurable.com
